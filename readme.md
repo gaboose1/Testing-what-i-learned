@@ -4,3 +4,4 @@ mahadsanid siryasir
 caawa marhore dhamayn lahaa cashirka haduusan errorkaas dhacayn
 be patient
 wake up
+life is not easy
