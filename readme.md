@@ -10,3 +10,4 @@ waa inaa waxqabsado
 damn
 yow 
 new things
+only few things baa dhiman
