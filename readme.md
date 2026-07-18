@@ -5,3 +5,4 @@ caawa marhore dhamayn lahaa cashirka haduusan errorkaas dhacayn
 be patient
 wake up
 life is not easy
+im trying to be best
