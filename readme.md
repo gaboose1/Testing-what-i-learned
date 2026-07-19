@@ -12,4 +12,5 @@ yow
 new things
 only few things baa dhiman
 its so easy
-i made 3 branchs
+i made 3 branch
+my life waxay ku jirtaa gacanta alle wayne
