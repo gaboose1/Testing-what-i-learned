@@ -13,4 +13,5 @@ print(type(active), active)
 
 
 # so i think know you got it
+because when i make the difference im the best # type: ignore
 
